@@ -15,6 +15,5 @@
 
 • meu insta: cauan_2XL
 
-![teste](https://media.tenor.com/4CLbOgXPh8cAAAAC/dark-souls.gif)
-
+![teste](https://media.tenor.com/ov3Jx6Fu-6kAAAAM/dark-souls-dance.gif)
 
